@@ -11,7 +11,7 @@
 
 <h1 align="center"><b> 4ꜱᴛ 𝐒𝐏𝐀𝐌 𝐗🔥</b></h1>
 
-<h4 align="center"> 𝐓𝐇𝐄 𝐅𝐔𝐂𝐊𝐈𝐍𝐆 𝐁𝐎𝐓 🥱💀</h4>
+<h4 align="center"> 𝐓𝐇𝐄 𝐏𝐎𝐖𝐍𝐄𝐑𝐅𝐔𝐋𝐋 𝐅𝐔𝐂𝐊𝐈𝐍𝐆 𝐁𝐎𝐓 🥱💀</h4>
 
 <p align="center"><a href="https://t.me/shiva_ansh_op"><img src="https://graph.org/file/5d567b480734c9b4c8ff8.jpg" width="400"></a></p>
 
