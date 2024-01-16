@@ -51,4 +51,8 @@
 
 
 # ꜱᴜᴘᴘᴏʀᴛ ✨
-<a href="https://t.me/mastiwithfriendsx"><img src="https://img.shields.io/badge/Join-Telegram%20Channel-red.svg?logo=Telegram"></a>
+<a href="https://t.me/II_4ST_FIGHTER_ll"><img 
+
+# ᴘᴏᴡɴᴇʀ 🥱💀
+src="https://t.me/ll4st_opII"></a>
+
