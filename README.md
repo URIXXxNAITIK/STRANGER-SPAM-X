@@ -1,7 +1,7 @@
-### 🌷𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑🌷
+### 🌷4ꜱᴛ 𝗙ᴜᴄᴋɪɴɢ 𝗕ᴏᴛ🌷
 
 <!--
-**itzshukla/itzshukla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**4st** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 <p align="center">
@@ -9,14 +9,14 @@
  -->    <img align="middle" src="https://profile-counter.glitch.me/itszshivam/count.svg" />
 </p>
 
-<h1 align="center"><b> 𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 𝐒𝐏𝐀𝐌 𝐗🔥</b></h1>
+<h1 align="center"><b> 𝐂𝐑𝐀𝐙𝐘 𝐔𝐑𝐈𝐗𝐗 𝐒𝐏𝐀𝐌 𝐗🔥</b></h1>
 
 <h4 align="center"> 𝐓𝐇𝐄 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/shiva_ansh_op"><img src="https://telegra.ph/file/aa4bf1e57d11fb75b602e.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/CRAZY_URIXX"><img src="(https://graph.org/file/5d567b480734c9b4c8ff8.jpg)" width="400"></a></p>
 
 
-> ⭐️ Thanks to everyone for using THIS STRANGER SPAM BOT, That is the greatest pleasure we have !
+> ⭐️ Thanks to everyone for using THIS CRAZY URIXX SPAM BOT, That is the greatest pleasure we have !
 
 <br>
 
@@ -51,4 +51,7 @@
 
 
 # ꜱᴜᴘᴘᴏʀᴛ ✨
-<a href="https://t.me/mastiwithfriendsx"><img src="https://img.shields.io/badge/Join-Telegram%20Channel-red.svg?logo=Telegram"></a>
+<a href="[https://t.me/mastiwithfriendsx](https://t.me/II_4ST_FIGHTER_ll)"><img src="https://t.me/ll4st_opII"></a>
+
+# ᴘ𝗢𝗪𝗘ʀ 😈💀
+<a href="[https://t.me/ll4st_opII"><img 
