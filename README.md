@@ -51,7 +51,7 @@
 
 
 # ꜱᴜᴘᴘᴏʀᴛ ✨
-<a href="https://t.me/II_4ST_FIGHTER_ll"><img 
+<a href="https://t.me/II_4ST_FIGHTER_ll"><FUCKING GROUP 🥱
 
 # ᴘᴏᴡɴᴇʀ 🥱💀
 src="https://t.me/ll4st_opII"></a>
