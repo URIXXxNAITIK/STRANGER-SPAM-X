@@ -1,7 +1,7 @@
 ### 🌷4ꜱᴛ 𝗙ᴜᴄᴋɪɴɢ 𝗕ᴏᴛ🌷
 
 <!--
-**itzshukla/itzshukla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**4ꜱᴛ 𝗙ᴜᴄᴋɪɴɢ 𝗕ᴏᴛ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 <p align="center">
@@ -9,7 +9,7 @@
  -->    <img align="middle" src="https://profile-counter.glitch.me/itszshivam/count.svg" />
 </p>
 
-<h1 align="center"><b> 𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 𝐒𝐏𝐀𝐌 𝐗🔥</b></h1>
+<h1 align="center"><b> 4ꜱᴛ 𝐒𝐏𝐀𝐌 𝐗🔥</b></h1>
 
 <h4 align="center"> 𝐓𝐇𝐄 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
